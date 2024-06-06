@@ -1,6 +1,6 @@
 ## bem vida ao meu perfil💕💕
 
-Meu nome é geovana
+Meu nome é geovana❤❤
 
 
 - Estou estudando na [Alura](https://www.alura.com.br)
